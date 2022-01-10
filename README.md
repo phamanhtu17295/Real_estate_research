@@ -1,5 +1,7 @@
 Paper to Read:
+
 https://cafef.vn/nhung-chinh-sach-phap-ly-noi-bat-nam-2021-tac-dong-den-thi-truong-bds-20220109075645917.chn
+
 https://cafef.vn/nhung-con-so-khoc-liet-cua-thi-truong-bds-nam-2021-20220109103612753.chn
 
 Certificate:
@@ -15,6 +17,12 @@ https://www.joneslanglasalle.com.vn/vi
 https://vn.savills.com.vn/
 
 https://www.cbrevietnam.com/
+
+https://dkra.vn/vi/
+
+Report:
+
+https://drive.google.com/drive/folders/1HmJLCI8EroB9HpYBWheG7uWSneOxiCFm?usp=sharing
 
 
 Website:
