@@ -1,3 +1,8 @@
+Financial Modelling:
+
+https://www.youtube.com/c/JoshuaKahr/featured
+
+
 Paper to Read:
 
 https://cafef.vn/nhung-chinh-sach-phap-ly-noi-bat-nam-2021-tac-dong-den-thi-truong-bds-20220109075645917.chn
