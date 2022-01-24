@@ -2,6 +2,11 @@ Financial Modelling:
 
 https://www.youtube.com/c/JoshuaKahr/featured
 
+https://corporatefinanceinstitute.com/resources/knowledge/modeling/
+
+https://www.mergersandinquisitions.com/commercial-real-estate/
+
+https://breakingintowallstreet.com/real-estate-modeling/?_ga=2.44282916.141715513.1643005779-903806306.1643005779
 
 Paper to Read:
 
